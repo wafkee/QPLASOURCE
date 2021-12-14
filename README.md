@@ -1,3 +1,2 @@
 # QPLASOURCE
-im never going to post it bitch
-anyways its just a skiddded thing
+use it as long you give me credit
